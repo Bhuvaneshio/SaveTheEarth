@@ -11,4 +11,6 @@ And it's a price I'm willing to pay.  And if I'm the only one, then so be it.
 But I'm willing to bet I'm not.
 Don't look back You are not going that way.
 
+Heroes are made by the path they choose, not the powers they are graced with.
+
 We are Avengers...!!!!
